@@ -1,3 +1,1 @@
-This is Myles' file.
-:D
-Hello! ! ! ! 1
+Hello Reader of my article :D.
